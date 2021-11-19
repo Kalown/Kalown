@@ -1,6 +1,6 @@
 #  ----------------------------------Kalown-------------------------------
 # EXPLORER 
-##Some time Hate to deal with the 'WEAKEST LINKS OF THE CYER-SEC' so connect with me if yu have somthing important to discuss 
+## Some time Hate to deal with the 'WEAKEST LINKS OF THE CYER-SEC' so connect with me if yu have somthing important to discuss 
 
 
 <!---
