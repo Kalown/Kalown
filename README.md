@@ -3,7 +3,7 @@
 ![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=Kalown&show_icons=true&theme=dark&hide=prs,issues)
 
 
-Hate t0 deal with the 'WEAKEST LINKS 0F THE CYER-SEC' s0 c0nnect with me if y0u have s0mthing imp0rtant to discuss 
+Love to learn new things  
 
 
 <!---
